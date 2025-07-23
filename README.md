@@ -1,1 +1,1 @@
-# Slicing-Halaman-Wesclic
+# Slicing-Magang-Wesclic
